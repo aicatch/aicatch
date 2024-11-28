@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![](https://i.postimg.cc/s2KMvVYp/ramattra-ramattra-princess.gif)
 <!--
 **aicatch/aicatch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
