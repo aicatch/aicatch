@@ -11,6 +11,7 @@ most of you guys have never worked a 9-5
 im 22 i dislike interacting with children or those who act like it !
 
 system dedicated accounts with all your alters and simply connected pls dni
+
 as someone whos plural it makes me kind of uncomfortable 👎
 
 ++ dni if you harrass people over fiction ,  im antiharrassment 
