@@ -25,7 +25,7 @@ i will not encourage your delusions or 'irls ' dni if you have that everywhere t
 irl as a kin term >>
 also if you use the term fictkin over irl dni it makes me uncomf as someone whos plural 👎
 
- dni if you harrass people over fiction ,  im antiharrassment 
+if you harrass people over fiction ,  im antiharrassment 
 
 DNI IF YOU FUCKING LABEL NORMAL FUCKING SHIPS AS PROSHIP AND THEN ACT LIKE YOU'RE ON SOME MORAL HIGH HORSE OVER NOT SHIPPING AGEGAP OR SHIPS WITH COMPLEX AND UNHEALTHY RELATIONSHIP DYNAMICS LIKE NO ONE GAF YOU LIKE MID ASS BORING FUCKING YAOI ESP IF YOU TRY AND WHINE ABOUT IT PUBLICLY WHEN PEOPLE ARE APPRECIATING THINGS THEY LIKE 
 
