@@ -19,8 +19,9 @@
     18+ only <br>
     i have an est timezone <br> 
     i work mornings/afternoons meaning, not at my desk <br>
-    if you whisper me back you will not get a response <br>
-    i encourage people to interact with me if i am active
+    if you whisper me back you will not get a response so i suggest signing my ata <br>
+    i encourage people to interact with me if i am active <br>
+    
   </p>
 
   <!-- Images side-by-side between the second and third paragraph -->
